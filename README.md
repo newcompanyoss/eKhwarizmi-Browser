@@ -24,7 +24,7 @@ eKhwarizmi Browser New Apps
 
 https://linktr.ee/NewCompany
 
-https://linktr.ee/SaifDeanAllYT
+https://newcompanystore.itch.io/
 
 Copyright SaifDeanAnYT © 2025 - 2026 New Company
 
