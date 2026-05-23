@@ -18,6 +18,15 @@ This is a program built on the eKhwarizmi kernel. When you use this program, you
 <img width="3840" height="2160" alt="kmc_20260523_183325" src="https://github.com/user-attachments/assets/c03eae62-a70c-4bf9-ad93-3bc72f7b12a5" />
 
 
+...
+
+eKhwarizmi Browser New Apps
+
+https://linktr.ee/NewCompany
+
+https://linktr.ee/SaifDeanAllYT
+
+Copyright SaifDeanAnYT © 2025 - 2026 New Company
 
 
 
