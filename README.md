@@ -22,6 +22,8 @@ This is a program built on the eKhwarizmi kernel. When you use this program, you
 
 eKhwarizmi Browser New Apps
 
+2025-05-23
+
 https://linktr.ee/NewCompany
 
 https://newcompanystore.itch.io/
